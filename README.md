@@ -92,14 +92,21 @@ October 2014 - April 2015
 - Created customer satisfaction survey, drastically reducing potential problems.
 
 # **EDUCATION**
-- ***Master of social science*** with honor                                                       2007-2012
-          Vitebsk State University, Belarus
+- ***Master of social science*** with honor 
+- 
+Vitebsk State University, Belarus
+2007-2012
 - ***Associate of Financial Management in Production***:
- economist-manager                                                                                  2010-2012
-           Vitebsk State Technological University
-- Cashiering classes                                                                                         2014      
-Goodwill Job Training & Education Center
-                             
+ economist-manager  
+
+Vitebsk State Technological University
+
+2010-2012
+
+- Cashiering classes            
+- 
+Goodwill Job Training & Education Center, 2014.
+ 
 # **LANGUAGE SKILLS**
 
 Four-lingual - English, Russian, Ukranian, Belarussian.
