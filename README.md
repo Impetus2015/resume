@@ -14,7 +14,7 @@ Seattle, WA
 - A team player.
 - Dynamic and creative.
 - A quick learner and internally motivated to seek out answers, generate ideas, and develop new skills.
- - Ability to work independently on assigned tasks as well as to accept direction on given assignments.
+- Ability to work independently on assigned tasks as well as to accept direction on given assignments.
 
 # **EXPERIENCE**
 
