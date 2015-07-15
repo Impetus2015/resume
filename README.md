@@ -103,8 +103,12 @@ Goodwill Job Training & Education Center
 # **LANGUAGE SKILLS**
 
 Four-lingual - English, Russian, Ukranian, Belarussian.
+
 Native language skills in Russian.
+
 Strong conversational skills.
+
 **I have more than 20 scientific research in publications of Russia and Belarus**.
+
 **More than 8 years volunteer of YMCA**. 
 
