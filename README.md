@@ -1,6 +1,7 @@
 # **Liudmila Samakhvalava**
 
 Cell: (206) 317-9885  
+
 e-mail: samakhvalava@gmail.com
 
 Seattle, WA
