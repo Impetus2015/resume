@@ -29,24 +29,30 @@ March 2015 - April 2015
 - Manage customer complaints regarding overbooking and hotel amenities/services in a professional manner resolving the problem through the most effective means possible;
 - Act as main point of contact with hotels verifying guest information as needed.
 
-## ***Teacher***     
-                                                                                  September 2014 - Present
+## ***Teacher*** 
+
 *"Da Vinci Children Educational Center", Bellevue, WA, USA*
+
+September 2014 - Present
 
 - Develop lesson plans, prepare materials, conduct lessons in Russian language, literature, math, and movement for children ages 3,5 years old up to 13 year old.
 
 ## ***Courtesy clerk***
 
-*"Safeway", Seattle, WA, USA*                                                          October 2014 - April 2015
+*"Safeway", Seattle, WA, USA* 
+
+October 2014 - April 2015
 
 - Provide customer service, stay focused on customer needs, including bagging groceries, handling damaged or returned products, and assisting customers carry groceries. 
 
 ## ***Client support, sales manager***
 
 *LLC "Alliance", Smolensk, Russia* 
-                                                        2012
+
 (Information Center of the all-Russian network dissemination of legal information
  "Consultant Plus")
+ 
+ 2012
 
 - Communication with customers, identifying needs.
 - Quickly and effectively solve customer challenges.
@@ -55,8 +61,10 @@ March 2015 - April 2015
 
 ## ***Customer Service Representative, Realtor***
 
-*LLC "Kontinent", Smolensk, Russia*                                                 2012-2014
+*LLC "Kontinent", Smolensk, Russia*    
 *(real estate agency)*
+
+2012-2014
 
 - Sale and rental of real estate, preparation of the necessary documentation to process transactions.
 - Communication with customers, identifying needs.
@@ -65,8 +73,10 @@ March 2015 - April 2015
 
 ## ***Deputy Director***
 
-*LLC "Horoshaya rabota", Minsk, Belarus*                                            2012- 2013
+*LLC "Horoshaya rabota", Minsk, Belarus*  
 *(construction company)*
+
+2012-2013
 
 - Cost estimates for the construction of buildings
 - Finding customers for construction
