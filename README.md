@@ -1,10 +1,13 @@
 # **Liudmila Samakhvalava**
-Cell: (206) 317-9885           e-mail: samakhvalava@gmail.com
+
+Cell: (206) 317-9885  
+e-mail: samakhvalava@gmail.com
+
 Seattle, WA
 
 -----------------------------
 
-# **SUMMARY**
+## **SUMMARY**
 
 - More than 5 years successful experience in customer service and support with recognized strengths in account maintenance, problem-solving and trouble-shooting, sales staff support, and planning/implementing proactive procedures and systems to avoid problems in the first place. 
 - A self-motivated and organized professional with over 3 years experience in real estate. 
@@ -16,9 +19,9 @@ Seattle, WA
 - A quick learner and internally motivated to seek out answers, generate ideas, and develop new skills.
 - Ability to work independently on assigned tasks as well as to accept direction on given assignments.
 
-# **EXPERIENCE**
+## **EXPERIENCE**
 
-## ***Customer Service Representative***
+### ***Customer Service Representative***
 
 *"Manpower", Bellevue, WA, USA*
 
@@ -29,7 +32,7 @@ March 2015 - April 2015
 - Manage customer complaints regarding overbooking and hotel amenities/services in a professional manner resolving the problem through the most effective means possible;
 - Act as main point of contact with hotels verifying guest information as needed.
 
-## ***Teacher*** 
+### ***Teacher*** 
 
 *"Da Vinci Children Educational Center", Bellevue, WA, USA*
 
@@ -37,7 +40,7 @@ September 2014 - Present
 
 - Develop lesson plans, prepare materials, conduct lessons in Russian language, literature, math, and movement for children ages 3,5 years old up to 13 year old.
 
-## ***Courtesy clerk***
+### ***Courtesy clerk***
 
 *"Safeway", Seattle, WA, USA* 
 
@@ -45,7 +48,7 @@ October 2014 - April 2015
 
 - Provide customer service, stay focused on customer needs, including bagging groceries, handling damaged or returned products, and assisting customers carry groceries. 
 
-## ***Client support, sales manager***
+### ***Client support, sales manager***
 
 *LLC "Alliance", Smolensk, Russia* 
 
@@ -59,7 +62,7 @@ October 2014 - April 2015
 - Maintain quality control/satisfaction records, constantly seeking new ways to improve customer service.
 - Selling software.
 
-## ***Customer Service Representative, Realtor***
+### ***Customer Service Representative, Realtor***
 
 *LLC "Kontinent", Smolensk, Russia*    
 *(real estate agency)*
@@ -71,7 +74,7 @@ October 2014 - April 2015
 - Quickly and effectively solve customer challenges.
 - Maintain quality control/satisfaction records, constantly seeking new ways to improve customer service.
 
-## ***Deputy Director***
+### ***Deputy Director***
 
 *LLC "Horoshaya rabota", Minsk, Belarus*  
 *(construction company)*
@@ -84,14 +87,14 @@ October 2014 - April 2015
 - Preparation of documents for the transaction
 - Sale of building materials
 
-# **SYNOPSIS OF ACHIEVEMENTS**
+## **SYNOPSIS OF ACHIEVEMENTS**
 
 - Sales increased from 1 to 4 items per month.
 - Proactive planning led to notable increase in morale in all departments.
 - Average 60 called calls a day to business and private individuals by telephone in order to solicit sales for goods and services.
 - Created customer satisfaction survey, drastically reducing potential problems.
 
-# **EDUCATION**
+## **EDUCATION**
 
 - ***Master of social science*** with honor 
 
@@ -110,7 +113,7 @@ Vitebsk State Technological University
  
 Goodwill Job Training & Education Center, 2014.
  
-# **LANGUAGE SKILLS**
+## **LANGUAGE SKILLS**
 
 Four-lingual - English, Russian, Ukranian, Belarussian.
 
